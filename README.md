@@ -1,4 +1,4 @@
-🌟[IEPL专线节点购买联系微信LLKJWX](https://eturl.cn/B5CicD) QQ：10219805
+🌟[IEPL专线节点购买联系微信：LLKJWX](https://eturl.cn/B5CicD) QQ：10219805
 
 🔥全平台支持✓
 
